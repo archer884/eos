@@ -1,0 +1,3 @@
+#!/bin/zsh
+mkdir -p -- 'artifacts'
+pandoc $1 --reference-doc styles/styles.docx -o ./artifacts/excerpt.docx
