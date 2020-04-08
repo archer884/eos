@@ -323,3 +323,12 @@ Thorne could hardly hear him over the ringing in his ears, but then two more pis
 He ran. He threw the sword on the ground and ran. He went out the door behind the altar and, sprinting pell mell, ducked into the hedge maze in the east garden. Another shot burst behind him, muffled by the branches, and the ball tore through the leaves beside him. He looked back just long enough to see the two wardens close behind him, and he ran.
 
 <!-- If I had to guess what's going to happen, it's this: Driscoll will lie and say that the flame was black *to save Thorne's life.* He will then claim that the shootout was a misunderstanding. Thorne will be saved only by his "heroic" acts at Haolien: he has won the Blue and Black, and no man who has been awarded such an honor can be entirely discarded. -->
+
+Some changes to make to the above:
+
+1. Rearrange the scene breaks so that the last scene ends with Thorne running away on his horse and falling off before he can clear the fence on his way out.
+2. Maybe go ahead and put the other stuff back in. (parade, drinking, fight, winning the medal...) This scene should basically end act 1/move us into the "magical" world.
+3. Thorne is rescued from being put to death by the Grand Duke, who points out that, as a winner of the Blue and Black, he cannot be considered dishonorable. Instead, he is outcast, leaving him outside the protection of the law.
+4. The church believes him to be a black flame, meaning they wish to put him to death. The ruling dynasty doesn't necessarily hold the same opinion; they're suspicious, but they dare not go against the Grand Duke, who is the most powerful man in the Empire other than the Emperor himself.
+5. The duke is the "pirate" who offered to buy all of Salter's debt, and it is Salter's boat that will carry Thorne and Sergeant Major Patterson to a far-off colony, where the Duke is digging for something very secret.
+6. The reason Thorne fell off his horse is that the knife they use for these tests is coated in a kind of narcotic.
