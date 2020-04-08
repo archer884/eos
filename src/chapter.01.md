@@ -140,235 +140,186 @@ But he did return. With a new uniform jacket, with his new rank, and with his fa
 
 Then again, perhaps that was only because, now, there was nowhere to run to.
 
-~
+~ 2602
 
-Horses and horse's asses and horse shit clogged the high street for the better part of an hour, right at the middle of midday, when common folk had things to do and places to be. Oh, it was a pretty enough parade, to be sure, with bands playing and banners dancing in the breeze, but couldn't they have picked tomorrow? Why today, of all days? Why today, when Salter had just put into port?
+The girls saw him first. They spotted him coming up the pike, between the silver-barked trees of the estate, and they ran down the road until the gateman stopped them, and there they waited, red-cheeked and panting. Thorne dismounted, throwing his leg over Apple's neck and dropping to catch little Jan in his arms. She squealed as he pulled her away from the horse, erupting with a combination of fury and giggling.
 
-"Relax," muttered Gramble, his ship's master. "Wouldn't kill you to cheer. Say God save the Queen, just once? If the almighty won't save her, he's not looking out for you, I can tell you."
+"You brought him home safe?" she asked, wriggling in his arms as she reached for Apple's tack.
 
-"No, I won't," said Salter. "These poffs think we've nothing better to do than wait hand and foot on them. It's preposterous!"
+"Yes, he's safe," said Thorne, and he deposited her carefully on the saddle; it seemed the best way to prevent disaster. Apple was a calm enough beast when there were no cannon involved, but it didn't do to train the more aggressive instincts out of a warhorse. "Now, be still, or I'll take you down."
 
-Gramble heaved a longsuffering sigh, but Salter noticed the way he rolled his eyes: to Gramble, Salter was probably just one short step removed from those poffs he railed against. Salter pursed his lips and looked away. It was true that the merchant class could hardly be compared to common laborers, but his family had come by its fortune by good, honest trading, if not by a good, honest trade.
+The tiny, white-blonde girl bounced in the saddle as though riding at a canter, although Apple ignored her but for a grouchy grunt. "Hey! What happened to his ear?"
 
-<!-- "Salter" is an occupational name for one who sells salt. -->
+The notch at the tip of Apple's right ear was new, but it wasn't a battle wound. The triangular cutting---literally an *earmark*---designated Apple as the private property of his rider, which released the regimental farriers from certain responsibilities regarding the animal should it be killed in combat. For example, when an animal owned by the regiment fell in battle, it fell to the farrier to lop off the beast's hoof in order to prove it had been killed.
 
-"It'll be over soon," said Gramble, nodding toward the parade. "See there? The 17th Hussars. They'll have the honor of riding last today. Covered them-damn-selves in glory at Holler Valley, or some such."
+"Just a bit of shrapnel," said Thorne. "Nothing we couldn't handle!" Quite frankly, it seemed wiser to let Jan believe that the enemy had done that to her brother's tall, red horse, as opposed to trying to explain why he'd been forced to do it himself.
 
-"A likely story," sniffed Salter. "They probably arrived just in time to take credit after the infantry bore the brunt of the fighting."
+"Apple is quite a brave horse, isn't he!"
 
-"Begging your pardon, sir," said Gramble, "but you'll be wanting to belay that kind of talk. I know you fancy yourself one of the lads, but here...." Gramble left the sentence unfinished, perhaps afraid of giving offense.
+"The very bravest."
 
-"Here what, Mr. Gramble?"
+Bellesa kept silent. Her mouth twitched when Thorne blamed the enemy for the earmark, but she said nothing. She was much older than their little sister---nearly as old as Thorne himself, though not quite old enough to have been married off yet---and she would understand the reason he had lied.
 
-"Well, you're not so different from them, are you?"
+"The newspapers," said Bellesa as Thorne, Apple, and Jan made their way up the path toward her, "claim that a young trooper distinguished himself quite thoroughly. Didn't our mother make herself clear? She said that you were to do nothing of any particular merit. Nothing whatsoever! Isn't that right, Jan?"
 
-"Mr. Gramble, I'm surprised at you. You know me to be a fair man, and sincere, and that I believe firmly in the equality of all."
+Jan knew enough to agree with her older sister, whatever she said. "Nothing!" she said with a nod.
 
-"Of course you do, sir," said Gramble, "but there's the rub. If you and them are equal, you're subject to their code of honor. A wharf rat like me can speak as he likes, but a gentlemanly fellow like yourself should watch his tongue."
+Thorne's cheeks flared red. "Whatever the papers said, I can assure you that I achieved nothing of note."
 
-"Ah. I see."
+Bellesa mistook Thorne's shame for bashful humility, and she hugged him tight. "We're all glad you're home and safe again. I only hope you don't need to leave again too soon."
 
-The 17th Hussars passed by: handsome, young men, all members of the nobility, of one stripe or another, and all mounted on tall, beautiful horses. He had seen such regiments on parade a dozen times or more, but not quite like this. The 17th Hussars were bloodied by a recent fight; their wounds had healed, but scars remained. The signs were visible for one who cared to look: in the livid weal on one man's face, or in another's missing arm. And yet that wasn't the worst of it.
+"The war is over. I should have a little while."
 
-Salter, throughout his life, was accustomed to seeing the Queen's cavalry regiments on parade at their full, authorized strength of four squadrons, or more than seven hundred men. Somehow, the 17th had been reduced from four squadrons to only two. The regiment had lost nearly fifty percent of its strength in one battle.
+"The war is over, and another is beginning. That is the way of things, after all."
 
-"Paper said these lads gave the Carolingians hell," said Grambler, and the barrel-chested seaman pressed his fist to his heart in salute as they went by. "God save the Queen," he called, his voice roaring out with the rest of the crowd, "and God have mercy on him who stands before the Hussars!"
+"Another? I hadn't heard."
 
-At Grambler's cry, the Hussars drew their swords and cheered in reply, spirited young men on hot-blooded horses. One great, smoke gray gelding reared up as though on command, and its rider shouted, "May God have mercy, for we have none!"
+"Not that kind of war, silly."
 
-The sound of drums and and bugles began to swell until their fury caused Salter's ribs to clatter against one another, and even the cheering roar of the crowd was drowned out as the 17th Hussars began their regimental song. They began with the third verse---being the *return,* while each regiment's song began with first a *levy,* then a *parting*---and repeated only that verse as they marched, their horses stamping proudly as they went. It was as if they did not know fully half their brothers in arms lay cold in the earth of some foreign land.
+"What, then?"
 
-Salter shivered when they had gone.
+"You'll see."
 
-Grambler gave him a curious look.
+The head groom met them at the inner gate and took both Apple and Jan to the stables. Bellesa led her brother to where their mother had been painting, on the verandah overlooking the east garden. She smiled at him but did not set aside her brushes; when the muse was upon her, she didn't like to stop.
 
-"Well?" said Salter. "Come on, then!"
+"It's good you're here," said his mother. "I've been meaning to do your portrait. Can you stand for me?"
 
-First the stock exchange, where he would secure the sale of his goods. His good which, as a matter of course, included several tons of salt, which meant that the very next thing he would do would be to bear with good grace the ribbing that would naturally follow. It wasn't *his* salt; his surname hadn't been literally true in three generations. After that, he would purchase bulk goods for the next leg of the trip, down to southern colonies, and he would lay in a good stock of supply for the journey in case he and his crew needed to winter there.
+"Stand where, Mother?"
 
-Grambler pressed a newspaper into his hand, interrupting his thoughts.
+"Not now," she said, laughing. "Next week, perhaps. I've been asked to do the princess---the young Countess of Troy?---so it would be nice to have some practice. I've done only landscapes of late."
 
-"What is this? I don't want this."
+"Father prefers that, doesn't he?"
 
-"Read."
+Both Bellesa and his mother scowled at his comment. His mother had nurtured a renowned talent over the past nine decades, having picked up painting when she was but a girl. Now she was one of the most sought-after painters in the Empire, but his father, the Lord Thorne, rankled to see her paid for her work. The wife of a Ritter was not meant to work, but to indulge in whatever passions inflamed her.
 
-"Heroic 17th returns home," he said, frowning at the headline.
+"You, of all people," said his mother, and she hid her smile, "ought not to concern yourself with what your father prefers."
 
-"Not that."
+At last, his mother set aside her brush, and she rose from the saddle, lifting her arms as if to embrace him. Thorne stood forward, ready to be embraced, but he was rebuffed and held at arm's length as she examined him. He dropped his arms to his side and pretended not to be surprised.
 
-"Lieutenant mentioned in dispatches?"
+"Still no spurt, hm?" she said, her face severe. It was a strange look on one who normally seemed so young and so carefree. "It will come. Soon, I think."
 
-"No."
+It was strange to hear her talk of his coming growth spurt. He already stood nine leaves in height, which was a goodly height even among the nobility; it was stones he was wanting.
 
-"Second naval law passed?"
+"That is the magic of a portrait," she said, and her mouth took on that same twitch of mischief he'd seen in Bellesa's earlier at the gate before she wrapped him up in a welcoming hug at last. "The painter may paint what she knows rather than what she sees. Now, you've wasted enough time with your mum. The prelate is here, all the way from Wick. He's been waiting all week to see you."
 
-"Damn it, here!" Gramble planted a thick, calloused finger on the page, all the way at the bottom.
+"But, Mother," he began, and he realized with some embarrassment that he did not want to be parted from her again so soon---from her familiar face, her golden curls, and her soft voice. "If he's waited so long, can he not wait another few minutes?"
 
-"Ul-shann opened to trade," said Salter. "Well, I don't see how that matters. Perhaps next year we can make a trip there for... For...."
+"Enough of such talk," she scoffed. "And don't let me hear about you questioning his choice, either. The Church's word is law in this house. It always has been."
 
-For salt. For countless tons of precious, perfect, pure salt. For salt that would normally take months to dry and grade, to clean and collect, and to ship from the horse latitudes back to civilization. For more salt than any man in the empire knew what to do with. The first shipments from Ul-shann would be arriving in days, if they hadn't already.
+Thorne's cheeks once more burned as he retreated from the verandah. He always felt embarrassment when he thought of the Church, or of the role it would play in his life. His embarrassment had only been stronger since the winter before, when his father had caught him by the hearth, under a sprig of mistletoe, with the daughter of a prominent merchant.
 
-Salter broke into a run, hurtling breakneck through the streets, bouncing from shop to corner and from corner to shop, overturning carts and old women and apologizing only in breathless passing. He ran, clutching his manifest to his chest, and he prayed.
+~ 3676
 
-He was too late.
+Lord Thorne had been furious. After the fashion of the upper classes, he had said nothing at all; he went to the butler, whispered a few words, and left the hall. The butler, in the politest possible terms, invited the young lady to leave, and she broke into tears as she ran from the room. The butler shrugged at Thorne, saying, "Ah, the sweet folly of youth."
 
-The price of salt, the bulk of his cargo, had already fallen from six crowns and twelve to just twelve---hardly any more than he had paid to begin with. The air felt close. His collar was too tight. His stomach roiled and he panted, sweating.
+That night, Thorne and his father shouted at one another for an hour. The next morning, Thorne took Apple and the family sword and rode to muster to join the now-famous Bloody 17th.
 
-"Salt, right?" asked a man with a cocked hat and a twinkling smile.
+The House of Thorne had long held a reputation as one of the most pious families in the Empire. At times, it seemed that piety did them profit; at others, it seemed likely to bring about their ruin instead. Even so, his father's faith in the Church was unshakeable---though, perhaps, that had less to do with faith and more to do with the debts he supposedly owed to the Church.
 
-Salter nodded. For a moment, he wondered how the man knew. Only for a moment.
+Thorne went to the chapel, which stood just outside the hedge maze in the east garden. There, at a table in the shade of a grand old tree, the prelate partook of an early lunch of bread, wine, cheeses, what Thorne took to be venison. The prelate was a man with gray hair, a youthful countenance, and an easy sense of authority about him; this authority was buttressed by the presence of a trio of ecclesial wardens who accompanied him.
 
-"Let's just have a look," said the man, who took Salter's manifest and whistled at what he saw on the page. "Oh, my. My, my, my... Tsk. You have made a poor wager, haven't you."
+Each of the wardens wore the brigandine armor of his office, with golden rivets set in rich, crimson leather, and each bore a magnificent longsword, the blade of which was never to be sheathed. Even now, three beautifully etched blades with lustrous gold damask, shone in the sunlight. Both the armor and the weapon of an ecclesial warden were ceremonial, in some sense. Just not in the sense that they weren't also entirely functional.
 
-"I---I have."
+Ecclesial steel was famous for its keen edge and wondrous toughness. Thorne had been permitted to hold a warden's sword once, in secret. In the sepulcher, in Wick, he held his breath and plucked at the edge of the blade with the pad of his thumb. The sword sang in his hand, vibrating with thirst and with the life hammered into the steel by the smith's craft. To his amazement, red blood welled up from his thumb. Even after all his lessons with the fencing master, he had been entirely unprepared to handle such a sword. Since that day, he had regarded the wardens with awe, and not a little fear.
 
-Soon, he would have no worries of being mistaken for a gentleman. He would be able to speak his mind as freely as Grambler, and no one would take offense, because no one would care what he said. He wouldn't even have the old family business to fall back on. Not unless something happened to close the mines again. Perhaps he could blow them up. He laughed as the man with the twinkling smile tut-tutted at him.
+"Here he is at last!" said the prelate, smiling and rising from his place at the board. "Bishop Driscoll, at your service my young lord. May I say that I have been eagerly awaiting this meeting for some time? And I don't mean simply these past five days."
 
-"And yet you are in luck," said the man. "I represent Mayben, Jennings, and Roth, and I am prepared to offer you three crowns and six for the balance of your stores."
+One of the wardens rose with him, cradling the length of his longsword across his folded arms. The others remained seated, drinking and eating and seemingly amused by their master's formality. That formality, however, was essential for Thorne.
 
-"What? Three... Three *crowns?"*
+Something in the bishop's voice, or in his smile, made Thorne certain that his pride was being pricked. Of course, to challenge a bishop to a duel was unthinkable, especially in the presence of his wardens; all Thorne could do was to bow low, introduce himself, and smile back. "You have been waiting for this?" he added, genuine curiosity in his voice. "Why?"
 
-Half price. Certainly, it was only half price, but it was more than five times what he might have gotten in an honest sale---and yet that very thought troubled him. An *honest* sale: which made this *dishonest,* didn't it?
+"Because now is your lighting day," said the bishop. "Now, we will see what course is set out for the rest of your life."
 
-"Why three crowns?"
+"Now?"
 
-"Three crowns and six, my good man," said the man with the twinkling, well-practiced smile, "because it is the opinion of Messrs Mayben, Jennings, and Roth that the empire cannot do without adventuresome businessmen like yourself. Consider the price as a small investment in the future of the realm."
+"Yes, now," said Driscoll, and already he was heading for the chapel. "What better time? You could have been killed off in Untu Buntu; may as well strike while the iron is hot. Or at least before the iron gets deployed once more and is blown to bits, right?"
 
-The man smiled and put out his hand, but Salter didn't take it.
+Church law, as dense and inscrutable as the fog on the Darby, set out the rules by which a man's lighting day was chosen. While a woman's lighting day was usually on or about her sixteenth birthday, a man was not lighted until he was considered, well and truly, a man---usually not before twenty-five, and often much later. Thorne had been dimly aware that war veterans were treated differently to a degree. Until that moment, he had not thought of himself as a veteran at all.
 
-"Join me for a drink," said the man. "We'll discuss the particulars over an ale. That, at least, must be amenable?"
+The familiar interior of the chapel was unexpectedly reassuring. Thorne was entering new and undiscovered territory, at once exciting and frightening. He spent some time examining those feelings while pretending to examine the stained glass above the altar: examining a feeling in detail made it easier to pretend that the feeling belonged to someone else, and therefore not to feel it at all.
 
-Just then, Grambler caught up in time to see Salter headed for the nearest pub in the company of the unnamed man with the twinkling, lying smile. Grambler shot him a dour look, and Salter shrugged. He shrugged, and he went for drinks with the pirate.
+"Hard to believe your house has survived more than seven hundred years," said Driscoll. He, too, was examining the stained glass.
 
-~
+Thorne wondered if the bishop was able to read the stars in the glass---to calculate, by their positions, the age of the House of Thorne and of the titles held by the Ritter of Dunmar---of if he had simply read that in some book on the peerage. He also wondered if the bishop were deliberately trying to make him angry, but the warden and his golden sword had followed them into the chapel. Thorne chose his words with care.
 
-A regiment's song had three verses: the levy, the parting, and the return. There was no verse for battle, for that part was sung by hard, ringing steel, the booming voice of guns, and the rattle of rifle fire; by the scream of horses and the dying and the damned; by the silence that ruled when the armies had gone. The silence of the grave, broken only by the cries of carrion birds wheeling in the blue sky.
+"We serve at the pleasure of the Imperial household," he said. "We will serve for as long as may be required."
 
-There was, however, a fourth verse.
+"In point of fact," said Driscoll, "you have served *three* Imperial households. You've held these lands longer than any king, queen, or emperor in living memory. Do you know why that is?"
 
-Each regiment's fourth verse, the Long Verse, was known only to the members of the regiment. When it was sung---if ever it was sung---it was only on the way to battle. That verse consisted of the names of the regiment's fallen. For the 17th Hussars, the Long Verse began with the Battle of Hoarfront, with the names of Andrew Marlbrew, William Easton, Samuel Atick, and Earnest Pettigrew. Four Hussars had fallen on the Hoarfront, in the first combat listed among the regiment's battle honors, and their sacrifice had begun the Long Verse.
+"Because---"
 
-In nearly one hundred years of service to the Atlantean Empire, that verse had grown to only two hundred and fourteen names. In a single day---one, black day in Haolien---that verse had more than doubled in length, to four hundred and eighty-two names.
+"Stop," said Driscoll, putting up his hand and wearing a look of disgust. "No answer given that quickly could possibly be well-considered."
 
-Newspapers sang the praises of the light regiment and its dauntless courage. The 17th Hussars had not only charged the guns on the heights of Haolien: they had charged into history and left their bloody mark on the proud annals of the Army. One too-pragmatic commentator had condemned Colonel Augustus Finch for his handling of the regiment, and the question had been raised in parliament, but all such condemnation had been shouted down. Besides, the colonel had not been at fault.
+"Then why?"
 
-All of that blood was on Thorne's hands.
+"Never mind." Driscoll approached the altar, along with the white candle waiting there, and the warden took up his post at the entrance. And the exit. "Perhaps, when you are older, you will understand. For now, just know that your house occupies a certain place in the plans of the Church. Are you prepared to do your part?"
 
-All those pretty boys. Eighteen, nineteen, perhaps twenty-one years of age. Most of them still unmarried. All of them with mothers who wrote them to say how they hoped their sons would return soon, and safe, and whose fathers perhaps loved them, even if they could not say it. Boys with brothers and sisters who mourned them even while pretending to be proud. Boys with sweethearts left lonely, with dreams shattered by shellfire, cut down by rifle bullets, torn asunder by the violence of war.
+Thorne set his jaw and gave a nod. "I am."
 
-As the Hussars marched in parade, and as they sang the return, Thorne foundered in the midst of the gravity of his mistake. His throat closed up, and only his mount's long-trained habits kept him in his proper place in the formation. He had never been so glad for the end of a parade---once his favorite part of being in the army. When the formation was dismissed, he knew just where he would go.
+The bishop offered him a knife. Thin, sharp as a razor, and damasked with patterns and inscriptions in gold much like the warden's sword, the blade felt heavy in Thorne's hand. Thorne lifted his eyes toward the bishop, weighted down with an unspoken question.
 
-"Ho, there, Lieutenant!" called one of his fellows, a lad called Mitchell by his comrades.
+"The palm is traditional," said Driscoll. "Here. Along the life line."
 
-Thorne gave no answer, and Mitchell caught him up quickly, as he lacked the heart to gallop. The pale young man slapped his back as he came alongside.
+He nodded. He pressed the edge against his palm, and at first he thought it didn't cut. All at once, the blood began to flow, and pain seared him, and he had to remind himself it was only a little cut. That he was a Hussar of the Bloody 17th. That he was a man, and this was his lighting day, and he must not show pain.
 
-"You're not already too good to drink with the men, are you?" asked Mitchell, grinning from ear to ear.
+Driscoll took him by the wrist and held his dripping hand over the white candle. Red blood ran down its pale flanks, staining the wax and the wick, and Thorne swayed on his feet. The task done, Driscoll pressed a long strip of heavy linen into his hand.
 
-"What makes you think I want a drink?"
+"Wrap it," said Driscoll.
 
-"Well, it's nearly noon, and what else have you done lately?"
+Thorne pulled the linen tight, binding his bleeding palm, and he swallowed. Incense filled his next breath as Driscoll struck a match anointed with sacred oil, and the prelate touched the glowing flame to the blood-bathed wick. The words of a nursery rhyme fluttered through Thorne's head as the chapel spun around him.
 
-Part of the cavalry's reputation for indiscipline stemmed from this: the comparative familiarity between officers and men. Even ordinary troopers of the cavalry were, after all, usually of noble birth; they didn't think of their officers as being cut from different cloth, unlike the men of the Rifles or the Foot. Thorne had never minded that until now.
+<!-- The candle flame burns a different color to represent each caste. White is an ordinary peasant. Gold is a peer. Black is corrupt, meaning that the bloodline must be ended. Red is for the royal bloodlines. -->
 
-Another trooper rode up beside them as they wound through the narrow side street, this one named Barclay. These three had entered in the same levy---though they had once been seven in number. The Immortal Seven, as Harvey Donne had been wont to say.
+> See the taper burning bright
+> See the candle set alight
+> See the churchman standing near
+> See the white flame, have no fear
 
-Donne had survived the charge but taken shrapnel through both lungs. By sheer audacity, or through foolish pride, he had reached the heights and seen the Carolingians routed before he fell from the saddle. Naively, Thorne first mistook the chalky pallor of his face for actual chalk before realizing that his friend had been bled completely white.
+> Golden, golden, brave and bold
+> Golden flames for men of old
+> When the wick burns like the sun
+> Joyful, joyful, every one
 
-"You, at least," he said as he lay dying, "are still immortal. Give my sister a kiss from me?"
+> Gutter gutter, weak and cold
+> Dark'ning flames the wicked hold
+> Sickness lives within his heart
+> Warden, warden, do your part
 
-Thorne did not know where the others had fallen, but he knew that much of the newest levy had fared poorly in the battle. They had much to learn of being shot at and only scant seconds to learn it. Given their blistering baptism of fire, perhaps it was surprising that only four of the Immortal Seven had been killed in action.
+> Rarest flame, above them all
+> Crimson flame to greatness calls
+> Snuff the candle, courage take
+> Blood of sovereigns must awake
 
-"Not again," said Barclay. "Not so early in the day."
+<!-- I'm not married to it. Maybe someone else can come up with something better. -->
 
-"It's guilt," said Mitchell. "Did you see him in action?"
+Not black. Anything but black. It wouldn't turn black; his family was seven centuries old. Every Thorne had been lighted golden, going all the way back to... He couldn't remember his great, great, great, great grandfather's name. It was something easy to remember. How silly of him. But it couldn't turn black.
 
-"No, but I heard he cut down a dozen."
+White was for peasants. Gold for the peerage. Black for the outcast. Perhaps the flame would turn white; he'd be as good as an outcast then, but he didn't think he'd mind. He could become a fencing master, like old Porinco, with his wide moustache and his bushy brows. He would travel the world, from city to city, teaching noble sons the art of the sword, and they would love and hate him in equal measure, just like old Porinco.
 
-"A dozen be damned---it was a full score, and I watched with my own eyes!"
+Bishop Driscoll drew in a sharp breath, and Thorne's eyes opened. Their eyes met for an instant---and only for an instant---before Driscoll pinched the wick with the fingers of a gloved hand, snuffing out the candle flame.
 
-"There's nothing to be ashamed of, Caz," said Barclay, "and that's the truth of it. They were fighting men every one. You did what any gentleman ought to do. It is no sin to slay the enemy in the midst of action."
+Red. The candle had burned blood red.
 
-"He's right," said Mitchell. "I only wish I had managed to get stuck in before they fled. That animal of yours is magnificent. I've never seen one faster! Although, I suppose it's possible you just weigh less than the rest of us. What about you, Bark? Did you get one?"
+Still dizzy from the cut on his hand, or perhaps from the sacred incense, Thorne was slow to understand. He raised his hand and the knife, thinking to offer to try again. Red was the wrong color. He didn't notice the quick footsteps behind him, or else he failed to realize their meaning.
 
-"I crossed swords with a grenadier," said Barclay, "or maybe that was his bayonet, but my horse carried me past before we could conclude our business with one another. Captain Peters gutted one. Oh, it was a dreadful sight!"
+Driscoll shouted a warning, but Thorne didn't move. The bishop took him by the collar and slung him across the room, pushing the altar over onto the floor and into the path of the oncoming warden.
 
-"Anyway, you should feel proud. I'm told you've been gazetted. Everyone will know you're a hero!"
+Thorne lay sprawled across the stone as the warden sliced the air where Driscoll's head had been only an instant earlier. "It was red," he said. "Not black. It was red."
 
-Proud? Hero? Proud of what? Of heroically getting half his regiment killed? Thorne pulled at the visor of his cap, and he sat straighter in the saddle. "I just realized," he said, keeping his voice blank and unreadable, "I forgot something."
+"He knows that!" said Driscoll, who tried to defend himself with a communion cup. "Why do you think the song said to snuff it out? What are you doing down there? Run!"
 
-(He runs off or rides off or something---just flees from his friends.)
+The command to run seemed to strike both Thorne and the warden at the same time. Thorne scrambled to his feet as the warden left the bishop and came for him. He slipped, his hobnailed boots gaining no purchase on the polished stone, and he realized that the ecclesial sword would split him like firewood. It would be the cleanest cut he'd ever seen. He cowered, throwing his hands over his head.
 
+No. A gentleman should face death with open eyes.
 
+Thorne had only just decided to lower his hands when a shot rang out and the air filled with the stench of gunpowder. He looked up to see the warden stagger, the magnificent sword slipping from his grasp. The man turned toward the bishop and another deafening blast filled the air with blue smoke, and the sword sang as it fell to the ground.
 
+The other two wardens entered, and Thorne knew what he had to do. He took up the warden's longsword, and he braced himself to face them---and then the prelate shoved him, whacked him with the communion cup.
 
+"Young fool, run!"
 
-Notes:
+Thorne could hardly hear him over the ringing in his ears, but then two more pistol shots echoed thunderously through the chapel. For a moment, Thorne thought it strange that he hadn't seen Driscoll fire, and then he saw the spreading stain on the prelate's jacket, and he looked back to the wardens to see the not-at-all ceremonial revolvers in their hands.
 
-archer884Today at 10:06 PM
-:p
-I started work on a new one. Just to have something set more in another world.
-Just in case people don't wanna read modern fantasy for the next couple years after this mess. /shrug
-It's actually an old one, though.
-Silver13Today at 10:06 PM
-How's that one going?
-archer884Today at 10:07 PM
-I think the first chapter is pretty strong.
-Oh, I told you about that. For some reason, sitting at one computer makes it impossible to remember stuff you did at the other.
-You saw the intro.
-I haven't decided what to do with it this time. Something different from last time.
-Silver13Today at 10:09 PM
-Oh right.
-that one had Thorne in it.
-archer884Today at 10:09 PM
-I go from Thorne's return home to some random guy named Salter.
-Salter is a merchant who just arrived in the capital with a shipment of something that he learns, thanks to the empire winning the war, is now practically worthless.
-He bumps into a man who agrees to buy it at half price (much more money than he would have gotten) and has to think it over. He's pretty sure the guy is a pirate.
-I have no clue what I'm going to do with Salter.
-Silver13Today at 10:12 PM
-Sounds like you need to map out your thoughts on that a bit.
-archer884Today at 10:13 PM
-I'm leaning toward, "They both get drunk, and Thorne challenges Salter to a fight."
-Silver13Today at 10:13 PM
-That sounds hot.  /coughs
-archer884Today at 10:14 PM
-lol. Really?
-You like the idea of a "pretty boy" in a duel? :p
-Silver13Today at 10:14 PM
-Of course I do.
-I'd pay money to watch Jason Mamoa fight someone.
-archer884Today at 10:17 PM
-lol.
-I expect that the fight would be interrupted before anything could happen, because Salter isn't actually a nobleman; he's of the merchant class, not the upper class.
-I think his ship captain, a guy called Grambler, is probably going to interrupt and kick the shit out of Thorne in a fistfight, because Thorne is still a month shy of 17 and still doesn't shave.
-Silver13Today at 10:19 PM
-Hahahahaha
-archer884Today at 10:20 PM
-That's meant to kind of offset this...
-Specifically, I'm talking about a part near the middle-ish where Thorne relays his experience of the battle. Just including the rest for context.
-Attachment file type: document
-message.txt
-4.09 KB
-Peters finds a little dried blood on Thorne's sword and demands to know whose it is. Thorne at first declines to answer, then says this:
+He ran. He threw the sword on the ground and ran. He went out the door behind the altar and, sprinting pell mell, ducked into the hedge maze in the east garden. Another shot burst behind him, muffled by the branches, and the ball tore through the leaves beside him. He looked back just long enough to see the two wardens close behind him, and he ran.
 
-Thorne laughed---a sound like a puppy being stabbed. He fell onto his side and lay there, laughing, never knowing the joke. "There was a gun captain," he said. "And his loaders. And the man at the trigger. There were men hauling shells. There was one pointing a rifle at me. It's their blood. It's all of their blood. The stains on the grip are mine."
-Silver13Today at 10:23 PM
-Ohh, he would rather say it's his than the truth.
-archer884Today at 10:24 PM
-Huh? No, he says whose it all is.
-"The stains on the grip are mine."
-That's his blood.
-Buuuut the others...
-This passage is meant to relay the fact that this sixteen year old kid just killed at least seven men.
-Silver13Today at 10:25 PM
-Ohhhh, ok.
-archer884Today at 10:28 PM
-I'm hoping that is shocking to some people. :p
-Maybe, in a fantasy novel, it won't even register. /shrug
-Silver13Today at 10:29 PM
-It prolly will impact people.  That's still pretty out there by most people's standards.
-archer884Today at 10:31 PM
-My plan is to revisit it during the bar scene when one of Thorne's comrades in arms approaches him about it.
-You know, just to make it clear that most people in battle never kill anyone.
-Silver13Today at 10:32 PM
-Yuh.
-I've read about that.
+<!-- If I had to guess what's going to happen, it's this: Driscoll will lie and say that the flame was black *to save Thorne's life.* He will then claim that the shootout was a misunderstanding. Thorne will be saved only by his "heroic" acts at Haolien: he has won the Blue and Black, and no man who has been awarded such an honor can be entirely discarded. -->
